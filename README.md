@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @TStyleBackUp
 - 👀 I’m interested in ...reclaiming MrNickTStyle@hotmail.com 
 - 🌱 I’m currently learning ...the way in which I get my account back safe and sound.
-- 💞️ I’m looking to collaborate on ...how I met my new friend’s MrNickTStyle persona.
+- 💞️ I’m looking to collaborate on ...how I helped my new friend’s MrNickTStyle persona back to it's rightful owner.
 - 📫 How to reach me ...Mr. Nick T-Style Taylor the Majestic Clown @MrNickTStyle
 
 MrNickTStyle@outlook.com
